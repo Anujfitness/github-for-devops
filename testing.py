@@ -14,4 +14,3 @@ fnijsbfiudsf
 ram ramcle
 fhiushdfindsf
 fbhbasf
-babu ji sudhrega nahi
